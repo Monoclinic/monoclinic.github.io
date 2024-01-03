@@ -5,4 +5,4 @@ MS from ICT, CAS.
 Major in Computer Vision.
 
 ## Beyond Coding
-A song writer, gamer and painter.
+A musician, gamer and painter.
